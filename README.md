@@ -1,1 +1,1 @@
-https://bharateshpatil123.github.io/Instagram-logo/
+https://bharateshpatil123.github.io/instagramlogo/
